@@ -1,0 +1,2 @@
+# krupeettnkstec
+Website for Stundent
